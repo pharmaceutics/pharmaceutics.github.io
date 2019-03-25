@@ -1,1 +1,0 @@
-# pharmaceutics.github.io
